@@ -1,2 +1,2 @@
 # hello-world
-first time.
+Newbie on the road, good brakes.
